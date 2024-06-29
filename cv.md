@@ -7,7 +7,8 @@
 ### Contact information :
 * [Instagram](https://www.instagram.com/ana.nacik/?utm_medium=copy_link) 
 * [VK](https://vk.com/id256272771) 
-* [E-mail](anastasiyazubareva06@gmail.com) 
+* [E-mail](anastasiyazubareva06@gmail.com)
+* [Discord](https://discord.com/ana_nacik)
  
  * * * 
 
